@@ -1,0 +1,1 @@
+# OSTrainingCamp2022-07-01
